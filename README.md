@@ -1,0 +1,1 @@
+# Yonetim_Nesne_odev
